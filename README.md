@@ -29,5 +29,6 @@ HOBBIES
         I also love coffee. Everytime I feel so stress, I just drink coffee and it makes me calm.
         I really love to travel despite the fact that I have a motion sickness.
  
+ 
  🙏My expectation in this Class: 
  I expect that this class will help me to sharpen my skills and knowledge about computer graphics, as well as help me to learn new things.
