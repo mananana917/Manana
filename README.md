@@ -3,7 +3,8 @@
 
 👋 Hola! Bonjour! Nǐn hǎo! Konnichiwa! Anyoung haseyo!
 
-🙋 Hello, I am Cherry Mirra Calisnao of BSCS 1A.
+🙋 Hello, I am [Cherry Mirra Calisnao](https://en.wikipedia.org/wiki/Daniel_Padilla) of BSCS 1A.
+
 👩‍🎓 A 19 years old student of WVSU under the CICT department.
 🏠 Residing at Brgy. Jamog, Tigbauan, Iloilo.
 👩‍👩‍👧The eldest daughter among the three.
