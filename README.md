@@ -3,10 +3,10 @@
 
 👋 Hola! Bonjour! Nǐn hǎo! Konnichiwa! Anyoung haseyo!
 
-🙋 Hello, I am [Cherry Mirra Calisnao](https://sites.google.com/wvsu.edu.ph/cherrymirra201--itsme/home) of BSCS 1A.
+🙋 Hello, I am [Cherry Mirra Calisnao](https://sites.google.com/wvsu.edu.ph/its-me/home) of BSCS 1A.
 
 👩‍🎓 A 19 years old student of WVSU under the CICT department.
-🏠 Residing at Brgy. Jamog, Tigbauan, Iloilo.
+🏠 Residing at [Brgy. Jamog, Tigbauan, Iloilo.](https://goo.gl/maps/JRj9QYpkenXBEABP9)
 👩‍👩‍👧The eldest daughter among the three.
 
 👉 In fact, I am a person who is very dedicated, organized, and methodical. I'm also willing to learn and improve my skills. I am reliable and dependable and often seek new responsibilities given to me. I am determined and decisive to find and take advantage of opportunities.
