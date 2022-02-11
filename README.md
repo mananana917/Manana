@@ -3,7 +3,7 @@
 
 👋 Hola! Bonjour! Nǐn hǎo! Konnichiwa! Anyoung haseyo!
 
-FACTS:
+                                 FACTS
 
 🙋 Hello, I am [Cherry Mirra Calisnao](https://sites.google.com/wvsu.edu.ph/its-me/home) of BSCS 1A.
 
@@ -30,16 +30,17 @@ HOBBIES
         I really love to travel despite the fact that I have a motion sickness.
  
  
- 🙏My expectation in this Class: 
- I expect that this class will help me to sharpen my skills and knowledge about computer graphics, as well as help me to learn new things.
+                    🙏My expectation in this Class:
+ 
+   I expect that this class will help me to sharpen my skills and knowledge about computer graphics, as well as help me to learn new things.
  
  
  
- 👌KEEP IN TOUCH THROUGH MY SOCIAL MEDIA ACCOUNTS:
+                                👌KEEP IN TOUCH THROUGH MY SOCIAL MEDIA ACCOUNTS:
  
-                       Facebook: [Cherry Mirra Calisnao](https://www.facebook.com/meenonose)
+   Facebook: [Cherry Mirra Calisnao](https://www.facebook.com/meenonose)
  
-                         Instagram: [meenonose](https://www.instagram.com/meenonose/?hl=en)
+   Instagram: [meenonose](https://www.instagram.com/meenonose/?hl=en)
  
-                                  Twitter: [@mirrablabla](https://twitter.com/home)
+   Twitter: [@mirrablabla](https://twitter.com/home)
  
