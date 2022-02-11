@@ -32,3 +32,13 @@ HOBBIES
  
  🙏My expectation in this Class: 
  I expect that this class will help me to sharpen my skills and knowledge about computer graphics, as well as help me to learn new things.
+ 
+ 
+ KEEP IN TOUCH THROUGH MY SOCIAL MEDIA ACCOUNTS:
+ 
+ Facebook: [Cherry Mirra Calisnao](https://www.facebook.com/meenonose)
+ 
+ Instagram:[meenonose](https://www.instagram.com/meenonose/?hl=en)
+ 
+ Twitter:[@mirrablabla](https://twitter.com/home)
+ 
