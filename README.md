@@ -38,7 +38,7 @@ HOBBIES
  
  Facebook: [Cherry Mirra Calisnao](https://www.facebook.com/meenonose)
  
- Instagram:[meenonose](https://www.instagram.com/meenonose/?hl=en)
+ Instagram: [meenonose](https://www.instagram.com/meenonose/?hl=en)
  
- Twitter:[@mirrablabla](https://twitter.com/home)
+ Twitter: [@mirrablabla](https://twitter.com/home)
  
